@@ -1,2 +1,5 @@
 # pls50-E6
-for ergasia 6 pls50
+for ergasia 6 pls50  
+123611 ATH-3    
+AKADAIMAIKO ETOS 2016-2017  
+PLS 50
